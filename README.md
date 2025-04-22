@@ -1,1 +1,0 @@
-# iimb-resume-abhinav
